@@ -2,13 +2,15 @@
 
 # Double Chocolate Chip Cookies
 
-## Zutaten
+### Feuchte Zutaten
 
 - 70g	weißer Zucker
 - 200g	brauner Zucker
 - 1P	Vanillezucker
 - 220g	weiche Butter, darf auch geschmolzen sein
 - 2	Eier, L
+
+### Trockene Zutaten
 
 - 250g	Mehl
 - 90g	Kakao

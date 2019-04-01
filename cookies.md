@@ -26,4 +26,4 @@ Butter mit Zucker und Vanillezucker rühren bis der Zucker aufgelöst ist. Eier 
 
 Mit Frischhaltefolie zwei Rollen von etwa 5cm Durchmesser formen und im Kühlschrank fest werden lassen. Davon etwa 1,5 - 2cm dicke Scheiben schneiden und einfrieren.
 
-Ofen auf 160°C Umluft vorheizen. Jedes Cookie mit ein paar Krümeln Salz bestreuen, aus dem Kühlschrank 12-13min backen - 15min für gefrorenen Teig.
+Ofen auf 160°C Umluft vorheizen. Jedes Cookie mit ein paar Krümeln Salz bestreuen, aus dem Kühlschrank 12-13min backen, 15min für gefrorenen Teig.

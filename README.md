@@ -1,3 +1,3 @@
 # recipes
 
-* [Double Chocolate Cookies](cookies.md)
+* [Double Chocolate Chip Cookies](cookies.md)

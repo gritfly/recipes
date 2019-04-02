@@ -18,6 +18,7 @@
 - 1/2 TL	Backpulver
 - 1/4 TL	Salz
 
+außerdem:
 - 170g	Backfeste Chocolate Chips, Zartbitter
 - 170g	Backfeste Chocolate Chips, Weiß
 

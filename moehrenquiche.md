@@ -1,26 +1,26 @@
 
-# Möhrenquiche mit Feta à la Mococo
+# MÃ¶hrenquiche mit Feta Ã  la Mococo
 
 ## Zutaten 
-für eine kleine Springform, soll etwa 5cm hoch werden
+fÃ¼r eine kleine Springform mit 18cm Durchmesser, soll etwa 5cm hoch werden
 
-- Blätterteig
-- 800g Möhren, grob geraspelt
+- BlÃ¤tterteig
+- 800g MÃ¶hren, grob geraspelt
 - 150g Feta
 - 150g Schlagsahne
 - 3 Eier
 - 1 EL Dill
-- 1 TL Salz, leicht gehäuft
+- 1 TL Salz, leicht gehÃ¤uft
 - Pfeffer
-- 20g	Butter zum Braten
+- 30g	Butter zum Braten
 
 
 ## Zubereitung
 
-Geraspelte Möhren mit Butter in einer Pfanne anbraten und mit Deckel bissfest dünsten, gelegentlich umrühren. Anschließend auf einem großen Teller abkühlen lassen.
+Geraspelte MÃ¶hren mit Butter in einer Pfanne anbraten und mit Deckel bissfest dÃ¼nsten, gelegentlich umrÃ¼hren. AnschlieÃŸend auf einem groÃŸen Teller abkÃ¼hlen lassen.
 
-Springform mit Backpapier (optional) und Blätterteig auslegen.
+Springform mit Backpapier (optional) und BlÃ¤tterteig auslegen.
 
-Eier mit Sahne verrühren, zerkrümelten Feta, Dill, Salz und Pfeffer hinzufügen. Die abgekühlten Möhren damit vermischen und in die Springform geben.
+Eier mit Sahne verrÃ¼hren, zerkrÃ¼melten Feta, Dill, Salz und Pfeffer hinzufÃ¼gen. Die abgekÃ¼hlten MÃ¶hren damit vermischen und in die Springform geben.
 
-Bei 180°C Ober-/Unterhitze (entspricht 160°C Umluft) etwa eine Stunde backen.
+Bei 180Â°C Ober-/Unterhitze (entspricht 160Â°C Umluft) etwa 1h 10min backen.

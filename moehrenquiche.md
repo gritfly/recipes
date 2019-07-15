@@ -10,6 +10,7 @@ für eine kleine Springform mit 18cm Durchmesser, soll etwa 5cm hoch werden
 - 150g Schlagsahne
 - 3 Eier
 - 1 EL Dill
+- 1 EL Petersilie
 - 1 TL Salz, leicht gehäuft
 - Pfeffer
 - 30g	Butter zum Braten

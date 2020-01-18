@@ -1,5 +1,5 @@
 
-# Möhrenquiche mit Feta à la Mococo
+# Möhrenquiche mit Feta
 
 ## Zutaten 
 für eine kleine Springform mit 18cm Durchmesser, soll etwa 5cm hoch werden

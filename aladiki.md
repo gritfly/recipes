@@ -18,7 +18,7 @@
 
 - Alle Zutaten zusammen verrühren bis der Teig glatt und zäh ist.
 
-- Reichlich Sonnenblumenöl in eine Pfanne geben und bei niedriger Stufe erhitzen. Mit einem Essloeffel kleine Kreise des Teigs in das Öl geben. Pfanne mit einem Deckel verschließen.
+- Reichlich Sonnenblumenöl in eine Pfanne geben und bei niedriger Stufe erhitzen. Mit einem Esslöffel kleine Kreise des Teigs in das Öl geben. Pfanne mit einem Deckel verschließen.
 
 - Wenn die Aladiki unten goldbraun und oben nicht mehr flüssig sind, mit einer Gabel in den Rand pieksen und wenden. Deckel wieder drauf.
 Vorsicht! Kondenswasser regelmäßig vom Deckel entfernen, sonst spitzt es!

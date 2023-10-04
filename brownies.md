@@ -4,12 +4,13 @@ Rezept für eine kleine Kuchenform (18cm)
 ## Zutaten
 
 - 125g dunkle Schokolade
-- 125g Butter
+- 110g Butter
+- 1 El Öl
 - 100g brauner Zucker
 - 50g weißer Zucker
 - 2 Eier, zimmerwarm
-- 30g Mehl
-- 30g Kakao
+- 40g Mehl
+- 20g Kakao
 - 1 Prise Salz
 - 1 TL Kaffepulver, instant
 - 1 TL Rum, optional

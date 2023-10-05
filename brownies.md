@@ -13,8 +13,8 @@ In der üblichen eckigen Brownie-Form (20cm Kantenlänge) werden die Brownies fl
 - 40g Mehl
 - 20g Kakao
 - 1 Prise Salz
-- 1 TL Kaffeepulver, instant
-- 1 TL Rum, optional
+- 1 TL Instantkaffee
+- 1 TL Rum (optional)
 - Variationen nach Belieben mit Walnüssen, Zimt, Vanille o.ä.
 
 Optionale Füllungen:

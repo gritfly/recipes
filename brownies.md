@@ -23,7 +23,7 @@ Optionale Füllungen:
 
 ## Zubereitung
 
-- Butter und Schokolade bei niedriger Hitze zusammen schmelzen lassen.
+- Butter, Öl und Schokolade bei niedriger Hitze zusammen schmelzen lassen.
 - Die Eier und den gesamten Zucker mit der Maschine sehr schaumig schlagen, bis es fast weiß aussieht und der Zucker vollständig aufgelöst ist.
 - Kaffee im Rum auflösen und mit der lauwarmen Schokolade unter die Eimasse rühren.
 - Mehl, Kakao und Salz mischen, sieben und per Hand unter den Teig heben, nicht zu lange rühren.

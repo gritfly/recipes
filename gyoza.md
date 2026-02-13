@@ -50,7 +50,7 @@ Zutaten für den Dip mischen.
 Spitzkohl ganz fein hacken, evtl. Küchenmaschine nutzen. Etwas salzen und 10 Minuten stehen lassen. 
 Danach kräftig kneten, so dass der Kohl weich wird und Volumen verliert. Die austretende Flüssigkeit eventuell etwas abgießen.
 Möhre fein reiben, Zwiebel in feine Würfel schneiden, Knoblauch pressen, Ingwer reiben.
-Alle Zutaten für die Füllung mischen, evtl. mit einer Küchenmaschine. Wenn die Füllung zu trocken erscheint etwas Brühe oder Wasser zugeben.
+Alle Zutaten für die Füllung mischen, evtl. mit einer Küchenmaschine. Wenn die Füllung zu trocken erscheint, etwas Brühe oder Wasser zugeben.
 Zum Abschmecken eine kleine Menge der Füllung braten. Füllung kalt stellen.
 
 Nudelteig zu einem Strang rollen und kleine Stücke abschneiden. Jedes Stück möglichst dünn mit etwas Mehl zu einem Kreis ausrollen.
